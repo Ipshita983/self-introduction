@@ -8,6 +8,6 @@ My name is Ipshita Gupta, a third-year B.Tech student in Computer Science Engine
 
 Please find my self-introduction video below:
 
-[Click here to watch my video](PASTE_YOUR_VIDEO_LINK_HERE)
+[Click here to watch my video](https://drive.google.com/file/d/1l1HIS5N1UXAe0mF5pxy-SpG321dnunPN/view?usp=sharing)
 
 Thank you.
